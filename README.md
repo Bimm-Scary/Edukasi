@@ -1,0 +1,2 @@
+# Edukasi
+Hanya untuk edukasi.
